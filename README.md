@@ -138,7 +138,7 @@ Je suis ouvert aux échanges avec des professionnels de la finance, des recruteu
 
 💼 **LinkedIn :** https://www.linkedin.com/in/wahid-sanoussi/
 
-💻 **GitHub :** [Découvrir mes dépôts](https://github.com/)
+💻 **GitHub :** https://github.com/AbdoulWahid03
 
 ---
 
